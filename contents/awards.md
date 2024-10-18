@@ -1,9 +1,11 @@
-- First-prize Academic Scholarship, 2023.
+- National Inspirational Scholarship, 2019.05.
 
-- Freshman Academic Scholarship, 2022.
+- Guangxi Province TI Cup Electronic Design Competition -Third Prize, 2018.08.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Liuzhou College Electronic Design Competition - First Prize, 2018.05.
 
-- First-prize Enterprise Scholarship, 2021.
+- Xinyingda Cup Electronic Design Competition - Second Prize, 2017.09.
 
-- First-prize Academic Scholarship, 2019.
+- Outstanding Student Scholarship– Second Class , 2017.06.
+  
+- Best Student Award, 2016.09
